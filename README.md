@@ -1,4 +1,4 @@
-# flybitt官网防失联地址
+# flybit官网防失联地址
 
 最新地址：[flybit.vip](https://www.fb9999.shop/#/register?code=eds1k68c)
 
